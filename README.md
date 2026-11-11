@@ -2,7 +2,7 @@ Serwus.
 
 I don't feel like making this look fancy. 
 
-My name is Tobias, I also go by Rabid. I am Slavic, I like cybersecurity (mostly maleware and scam awareness), art, music and tinkering with electronics. 
+My name is Tobias, I also go by Rabid. I am Slavic, I like cybersecurity (mostly malware and scam awareness), art, music and tinkering with electronics. 
 
 
 I hide freely if you are weird or annoying, or if your DNI list is AIDS and very long.
