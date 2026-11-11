@@ -13,7 +13,8 @@ I will hide any WW2 and WW1 related skins, war outfits on MLP characters and oth
 I say slurs that I can reclaim. Hide me if you don't like slurs, I will not listen to your preaching about their bad impact.
 
 The Coffin of Andy and Leyley fans can fuck off, as well as Alfreds Playhouse, the weird fucking Boyfriend game and anyone who engages in "fandoms" surrounding vent content.
+
 Proship is common sense, I do not want to see you nor hear your justifications about trauma coping. Any pro-contact parahilias I do not want to interact with.
 
 
-I do not like you.
+I most likely do not like you.
