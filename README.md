@@ -2,7 +2,7 @@ Serwus.
 
 I don't feel like making this look fancy. 
 
-My name is Tobias, I also go by Rabid. Punk, ACAB, Skeptic. I am Slavic (sadly Polish), I like cybersecurity (mostly malware and scam awareness), art, music and tinkering with electronics.
+My name is Tobias, I also go by Rabid. Punk, ACAB, Skeptic. I am Slavic (sadly Polish), I like cybersecurity (mostly malware and scam awareness), art, music and tinkering with electronics. I WILL help you fix your PC or get rid of malware with pleasure. Please let me dig in your devices. 
 
 
 I hide freely if you are weird or annoying, or if your DNI list is AIDS and very long.
