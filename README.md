@@ -17,6 +17,7 @@ The Coffin of Andy and Leyley fans can fuck off, as well as Alfreds Playhouse, t
 Proship is common sense, I do not want to see you nor hear your justifications about trauma coping. Any pro-contact parahilias I do not want to interact with.
 
 Skeptical of people who put "SYS" in their pony names or claim to have 23423423 disorders. There are way too many DID/OSDD and BPD/schizoaffective fakers to not be suspicious anymore. If you ARE faking, then just stay the fuck away from me, I will not be nice to you. 
+
 Stop pestering my friends about MY fucking views, if you want to know something about me, ask ME, instead of blocking me and then whispering my close ones like a pussy. Grow some balls and handle shit by yourself, especially when it comes to the "SYS" stuff. Learn to read and comprehend what you are reading. I DO NOT HATE PEOPLE WHO HAVE THE DISORDER. I AM SKEPTICAL OF THOSE WHO PUT THAT ON THEIR PONIES (they can still interact and I will entertain it). I DO NOT WANT PEOPLE WHO FAKE IT TO INTERACT. 
 
 
