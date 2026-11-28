@@ -7,6 +7,8 @@ My name is Tobias, I also go by Rabid. Punk, ACAB, Skeptic. I am Slavic (sadly P
 
 I hide freely if you are weird or annoying, or if your DNI list is AIDS and very long.
 
+If your skins are bright and colorful and contrasting you are being hid permanently because I have severe eye problems and that gives me a splitting headache to look at your vomit ugly fucking palette.
+
 I will hide any WW2 and WW1 related skins, war outfits on MLP characters and other shit, I don't want to see people glorifying the millions of deaths that happened because of them. (I don't care for normal war outfits not related to the Nazi Germany and USSR.)
 
 
